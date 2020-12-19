@@ -33,5 +33,5 @@ Apabila Anda berdomisili di Jogja, saat ini telah banyak lembaga yang menyediaka
 
 Itulah informasi seputar tes minat dan bakat yang bisa Anda pertimbangkan sebelum melakukannya. Tes minat dan bakat cukup penting karena bisa mengetahui potensi tersembunyi yang sebenarnya dimiliki. Namun, Anda membutuhkan bantuan dari ahli psikologis agar bisa mendapatkan hasil tes yang valid. Biro Psikologi Laksita Educare memberikan pelayanan tes minat dan bakat di Jogja dengan didampingi psikotester yang telah berpengalaman
 
-Jika anda sedang mencari tempat Tes Minat dan Bakat di Jogja yang terdekat dan terbaik dengan biaya murah silahkan hubungi kami via WhatsApp di nomor 08170434500
+Jika anda sedang mencari tempat Tes Minat dan Bakat di Jogja yang terdekat dan terbaik dengan biaya murah silahkan hubungi kami layanan [Psikolog Jogja](https://lei.my.id/) terbaik via WhatsApp di nomor 08170434500
 Atau klik : [WhatsApp Laksita Educare](https://go.lei.co.id/wa)
