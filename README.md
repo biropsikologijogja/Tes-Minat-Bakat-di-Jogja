@@ -6,6 +6,8 @@ Setiap individu yang terlahir ke dunia ini selalu hadir dengan memiliki keahlian
 
 Terdapat beberapa definisi mengenai minat, namun intinya antara lain minat adalah dorongan maupun keinginan yang terdapat di dalam diri individu terhadap obyek tertentu. Minat dapat menjadi tanda dari seseorang, yang kemudian memberikan motivasi kepadanya untuk mempelajari serta memperlihatkan kinerja yang tinggi. Ketika ada orang sebenarnya sudah mempunyai bakat, namun jika tidak diikuti dengan adanya minat pada bidang yang akan ditekuni, maka bakat tersebut akan tidak berkembang dengan baik.
 
+https://1.bp.blogspot.com/-EmWeX7dnLJA/X7cbBdp4qEI/AAAAAAAAMww/-eNgZ6CLhI47MLiVJzlXQZkpqjAQ9_pewCLcBGAsYHQ/w400-h400/Tes%2BMinat%2BBakat%2BFeed%2B%252850%2529.jpg
+
 ### Manfaat Tes Minat Bakat di Jogja
 Dengan melakukan tes minat bakat di Jogja dari Biro Psikologi Laksita Educare Yogyakarta maka akan dapat memberikan informasi terkait cerminan kemampuan seseorang dalam beberapa bidang tertentu. Dari hasil tes ini kemudian akan dipakai sebagai dasar untuk merencanakan dan mengambil keputusan terkait pilihan pendidikan atau pekerjaan yang sesuai berdasarkan kemampuan dan minat seseorang berdasarkan hasil tes tersebut.
 
@@ -27,6 +29,8 @@ Dengan mengetahui beberapa manfaat tes minat bakat di Jogja diharapkan dapat mem
 Mnegenai informasi biaya tes minat bakat di Jogja sebenarnya cukup terjangkau bagi banyak kalangan. Namun yang menarik dari Laksita Educare adalah kita bisa memperoleh informasi mengenai layanan psikologi melalui WhatsApp. Fasilitas informasi tentang biaya tes minat bakat pun bisa kita konsultasikan lewat WhatsApp terlebih dahulu sebelum kita datang.
 
 Bahkan dengan mudah kita bisa booking atau pesan jadwal layanan sehingga kita tidak perlu menunggu terlalu lama dan bisa langsung dilayani. Respon jawaban yang cepat serta ramah akan anda peroleh ketika anda menghubungi layanan online biro psikologi Jogja Laksita Educare melalui WhatsApp ke 0817-0434-500.
+
+https://youtu.be/ha573lOkbCo
 
 ## Rekomendasi Tempat Tes Minat Bakat di Jogja 
 Apabila Anda berdomisili di Jogja, saat ini telah banyak lembaga yang menyediakan tes minat dan bakat di Jogja. Pastikan untuk memilih salah satu yang paling kredibel. Jika memang diperlukan, pertimbangkan pula berapa uang yang harus dikeluarkan, apakah worth it dengan hasil yang didapat.
