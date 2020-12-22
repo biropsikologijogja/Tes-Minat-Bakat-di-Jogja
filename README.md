@@ -30,8 +30,6 @@ Mnegenai informasi biaya tes minat bakat di Jogja sebenarnya cukup terjangkau ba
 
 Bahkan dengan mudah kita bisa booking atau pesan jadwal layanan sehingga kita tidak perlu menunggu terlalu lama dan bisa langsung dilayani. Respon jawaban yang cepat serta ramah akan anda peroleh ketika anda menghubungi layanan online biro psikologi Jogja Laksita Educare melalui WhatsApp ke 0817-0434-500.
 
-![tes minat bakat di jogja](https://youtu.be/ha573lOkbCo)
-
 ## Rekomendasi Tempat Tes Minat Bakat di Jogja 
 Apabila Anda berdomisili di Jogja, saat ini telah banyak lembaga yang menyediakan tes minat dan bakat di Jogja. Pastikan untuk memilih salah satu yang paling kredibel. Jika memang diperlukan, pertimbangkan pula berapa uang yang harus dikeluarkan, apakah worth it dengan hasil yang didapat.
 
